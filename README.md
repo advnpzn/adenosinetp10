@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-You can contact me via [Telegram](https://t.me/SemiPermeable) or [email](mailto:adenosinetp10@protonmail.com).
+You can contact me via [Telegram](https://t.me/adenosinetp10) or [email](mailto:adenosinetp10@protonmail.com).
 
 I like to listen to music and songs.
 Here's what I'm listening.
