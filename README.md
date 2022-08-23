@@ -2,7 +2,7 @@
 
 You can contact me via [Telegram](https://t.me/adenosinetp10) or [email](mailto:adenosinetp10@gmail.com).
 
-I like to listen to music and songs.
+I like to listen to music, songs, watching anime, reading manga and meddling with computers.
 Here's what I'm listening.
 
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31zsvcvckdpxbqk434pyugcbfmza&cover_image=true&theme=novatorem&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
