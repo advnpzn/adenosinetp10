@@ -1,8 +1,5 @@
 My only online communication methods are Telegram & [email](mailto:adenosinetp10@protonmail.com).
 
-<h1 align="center" style="font-size: 22px"> (っ◔◡◔)っWOW WEBSITE WAWWW !!11   </h1>
-<h1 align="center" style="font-size: 22px"> ٩(＾◡＾)۶⁀⊙෴☉⁀(ᗒᗣᗕ)՞ web eng page!! ٩(⊙‿⊙)۶꒰(･‿･)꒱ </h1>
-
 ```
 
 ```math
